@@ -3,7 +3,7 @@
 Task: Poster 
 https://canva.link/5bro4h7kk15ehqr
 
-Concepts Applied:
+■ Concepts Applied:
 
 • Photo compositing 
 
